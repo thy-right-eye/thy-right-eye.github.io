@@ -3,9 +3,10 @@ Changing your mind can make any words true, so mind yourself and the words you u
 
 I recently made the independent observation that this universe is made up of 10 conceivable dimensions.  
 This includes the 3rd, experienced by humans using 5 "separate" senses.  
-It is my contention that there is no veil but our own perception, and with the proper exercise one may 'gaze' upon a wider realm of perspective, 
-granting the bearer of this sight with more peace than is possible while 
-incorrectly viewing our individual universes as "only" 3 dimensional, a truly laughable concept that many of us unwittingly believe.  
+It is my contention that there is no veil but our own perception, and with the proper exercise one may extend their watchful gaze upon a 'closer-to-whole' realm of perspective. 
+granting the bearer of this gaze to have more peace than was previously possible while 
+incorrectly viewing our current wokring universes as strictly 3 dimensional; a truly laughable concept that many of us unwittingly believe.
+Alathough upon dissection, this                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                       
 Here is a frail representation of the model of our universe AS IT PERTAINS TO HUMAN PERCEPTION.  
 It's base 10, like Super String Theory suggests.  
 Remember - YOU ARE THE CENTER OF YOUR UNIVERSE, and the succession of dimensions is observed from your center on out, beginning here:  
