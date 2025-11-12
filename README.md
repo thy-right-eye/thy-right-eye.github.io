@@ -7,7 +7,12 @@ It is my contention that there is no veil but our own perception, and we are the
 This leads to many adverse mental conditions:  
 Anxiety being defined as 'attemptimg to occupy a time/space in the certain/probable future relative to when/where your physical body resides'  
 Depression exactly described as 'attempting to occupy a time/space in the certain/probable past relative to when/where your physical body resides'  
-One must position themselves in the center of their timeline, and be comfortable with what they are leaving behind, where they are headed and where they are now.
+One must position themselves in the center of their timeline, and be comfortable with what they are leaving behind, where they are headed and where they are now.    
+Most importantly then is to TRAVEL WITH INTENTION.  
+We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
+It is no small feat to gather yourselves in your entirety and focus all of your intentions in one direction. Maybe this is what it means to align your will with god's.  
+What this means is that at any given time, you are devoted to what you are doing. You want to be there, and you are being honest about it.  
+Akin to Kundalini awakening, this sort of drive can tear your life asunder. Sometimes in a good way, sometimes not.
 Here is a frail representation of the model of our universe AS IT PERTAINS TO HUMAN PERCEPTION.  
 It's base 10, like Super String Theory suggests.  
 Remember - YOU ARE THE CENTER OF YOUR UNIVERSE, and the succession of dimensions is observed from your center on out, beginning here:  
