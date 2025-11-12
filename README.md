@@ -4,7 +4,7 @@ I recently made the independent observation that this universe is made up of 10 
 This includes the 3rd, experienced by humans using 5 "separate" senses.  
 It is my contention that there is no veil but our own perception, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
 This leads to many adverse mental conditions:  
-Anxiety being defined as 'attemptimg to occupy a time/space in the certain/probable future relative to when/where your physical body resides'  
+Anxiety being defined as 'attempting to occupy a time/space in the certain/probable future relative to when/where your physical body resides'  
 Depression exactly described as 'attempting to occupy a time/space in the certain/probable past relative to when/where your physical body resides'  
 One must position themselves in the center of their timeline, and be comfortable with what they are leaving behind, where they are headed and where they are now.    
 Most importantly then is to TRAVEL WITH INTENTION.  
@@ -29,7 +29,7 @@ Remember - YOU ARE THE CENTER OF YOUR UNIVERSE, and the succession of dimensions
   
 Obviously, for human-sized exploits largely taking place on Earth, not much beyond the first 6 dimensions is practically necessary or useful for worldly means or ends!  
 ...I hope this helps someone who is as confused as I am, and assists you to deal with the overwhelming absurdity of living in a 3 dimensional world 
-with 3 dimensional people as the illusion that it is. It is important not to neglect the fact that our bodies travel in many dimensions at once and are prone to fracture, so to concern oneself with only one or two directions of movement is of the utmost folly!
+with 3 dimensional people as the illusion that it is, but doesn't have to be. It is important not to neglect the fact that our bodies travel in many dimensions at once and are prone to fracture on any plane, so to concern oneself with only one or two directions of movement is dangerous to your health.
 Time and probablities are just as much physical locations as left and right, up or down, back and forth and should be observed accordingly.  
 
 Changing your mind can make any words true, so mind yourself and the words you use.
