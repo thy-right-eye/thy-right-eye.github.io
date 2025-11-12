@@ -1,4 +1,4 @@
-# thy-right-eye.github.io
+# Don't Panic
 Changing your mind can make any words true, so mind yourself and the words you use.
 
 I recently made the independent observation that this universe is made up of 10 conceivable dimensions.  
