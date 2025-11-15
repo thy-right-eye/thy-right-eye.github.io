@@ -7,8 +7,8 @@ I believed that I, myself, was my body and experienced life in this way.
 The mind and body stagnate in 3D.
 It is my contention that there is no veil but our own perception in between extra dimensions, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
 This leads to many adverse mental conditions:  
-Anxiety being defined as 'attempting to occupy a time/space in the certain/probable future relative to when/where your physical body resides'  
-Depression exactly described as 'attempting to occupy a time/space in the certain/probable past relative to when/where your physical body resides'  
+Anxiety being defined as 'attempting to occupy a time/space in the certain/probable future relative to when your physical body resides'  
+Depression exactly described as 'attempting to occupy a time/space in the certain/probable past relative to when your physical body resides'  
 One must position themselves in the center of their timeline, and know what they are leaving behind, where they are headed and where they are now.    
 Most importantly then is to TRAVEL WITH INTENTION.  
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
