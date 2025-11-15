@@ -2,7 +2,11 @@
 
 I recently made the independent observation that this universe is made up of 10 conceivable dimensions.  
 This includes the 3rd, experienced by humans using 5 "separate" senses.  
-It is my contention that there is no veil but our own perception, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
+Apparently somehow I had limited myself to the observation of only 3 up until now, distracted by the 5 senses and needs of the human host.
+I believed that I, myself, was my body and experienced life in this way.  
+The mind and body stagnate in 3D.
+It is my contention that there is no veil but our own perception in between extra dimensions, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
+We have 
 This leads to many adverse mental conditions:  
 Anxiety being defined as 'attempting to occupy a time/space in the certain/probable future relative to when/where your physical body resides'  
 Depression exactly described as 'attempting to occupy a time/space in the certain/probable past relative to when/where your physical body resides'  
@@ -27,10 +31,12 @@ Remember - YOU ARE THE CENTER OF YOUR UNIVERSE, and the succession of dimensions
 9th Dimension - spiral - Oneness  
 0th Dimension - zero - Nothing  
   
-Obviously, for human-sized exploits largely taking place on Earth, not much beyond the first 6 dimensions is practically necessary or useful for worldly means or ends!  
-...I hope this helps someone who is as confused as I am, and assists you to deal with the overwhelming absurdity of living in a 3 dimensional world 
-with 3 dimensional people as the illusion that it is, but doesn't have to be. It is important not to neglect the fact that our bodies inhabit space in at least 6 dimensions, not only 3, and are prone to  
-distinct damage in each one, so to concern oneself with only one or two directions of movement is dangerous to your health.
+Obviously, for human-sized exploits largely taking place on Earth, not much beyond the first 6 dimensions is practically necessary or useful  
+for worldly means or ends!  
+...I hope this helps someone who is as confused as I am, and assists you to deal with the overwhelming absurdity of living in a 3 dimensional 
+world with 3 dimensional people as the illusion that it is, but doesn't have to be. It is important not to neglect the fact that our bodies
+inhabit space in at least 6 dimensions, not only 3, and are prone to distinct damage in each one, so to concern oneself with only one or two
+directions of movement is dangerous to your health.
 Time and probablities are just as much physical locations as left and right, up or down, back and forth and should be observed accordingly.  
 
 Changing your mind can make any words true, so mind yourself and the words you use.
