@@ -9,8 +9,8 @@ It is my contention that there is no veil but our own perception in between extr
 This leads to adverse mental conditions:  
 Anxiety being defined as 'attempting to occupy a time/space in the certain/probable **future** relative to when your physical body resides'  
 Depression exactly described as 'attempting to occupy a time/space in the certain/probable **past** relative to when your physical body resides'  
-One must position themselves in the center of their timeline, and know what they are leaving behind, where they are headed and where they are now.    
-To gain wisdom
+One must position themselves in the center of their timeline, and *know* what they are leaving behind, where they are headed and where they are now.    
+To gain **wisdom** one must first attain *knowledge* of their domain.
 Most importantly then is to TRAVEL WITH INTENTION.  
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
 It is no small feat to gather yourselves in your entirety and focus all of your intentions in one direction. Maybe this is what it means to align your will with god's.  
