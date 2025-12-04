@@ -38,6 +38,6 @@ for worldly means or ends!
 world with 3 dimensional people as the illusion that it is, but doesn't have to be. Life is not a diorama, it is dynamic. Do not neglect the fact that our bodies
 inhabit space in at least 6 dimensions, not merely 3, and are prone to distinct damage in each one, so to concern oneself with only one or two
 directions of movement is dangerous to your health and lifespan.
-Times and probabilities are just as much physical locations as left and right, up or down, back and forth - and so should be observed accordingly. Or at the very least, not ignored and denied for what they are.
+Times and probabilities are just as much physical locations as left and right, up or down, back and forth - and so should be observed accordingly. Or at the very least, not ignored and denied for what they are by those who can afford that luxury.
 
 Changing your mind can make any words true, so mind yourself and the words you use.
