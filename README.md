@@ -1,7 +1,7 @@
 # don't panic
 
 I recently made the independent observation that this universe is made up of 10 conceivable dimensions.  
-This includes the 3rd, experienced by humans using 5 "separate" senses.  
+This includes the first 3, experienced by humans using 5 "separate" senses.  
 Apparently somehow I had limited myself to the observation of only 3 up until now, distracted by the 5 senses and needs of the human host.
 I believed that I, myself, was my body and experienced life in this way.  
 The mind and body stagnate in 3D.
@@ -10,12 +10,12 @@ This leads to adverse mental conditions:
 Anxiety being defined as 'attempting to occupy a time/space in the certain/possible **future** relative to when your physical body resides'  
 Depression exactly described as 'attempting to occupy a time/space in the certain/possible **past** relative to when your physical body resides'  
 One must position themselves in the center of their timeline, and *know* what they are leaving behind, where they are headed and where they are now.    
-To gain **wisdom** one must first attain *knowledge* of their domain.
-Most importantly then is to TRAVEL WITH INTENTION. 
+To gain **wisdom** one must first attain *knowledge* of their domain so they can master their surroundings.
+Most importantly then is to set your INTENTION. 
 This is the only way to effectively navigate your consciousness amidst the different probabilities.
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
 It is no small feat to gather yourselves in your entirety and focus all of your intentions in one direction. Maybe this is what it means to align your will with god's.  
-What this means is that at any given time, you are intentionally doing what you are doing. Your existence at that point in time and space is a conscious decision made after considering all other possibilities that are truly available and is serving the higher purpose of allowing you to sow chaos/order in the particular fashion one is only capable of.  
+What it *does* mean is that at any given time, you are intentionally doing what you are doing. Your existence at that point in time and space is a conscious decision made after considering all other possibilities that are truly available and is serving the higher purpose of allowing you to sow chaos/order in the particular fashion one is only capable of themselves. 
 It is in this way that you must complete everything you wish to do.
 Almost like a real Kundalini awakening, this sort of drive often tears your life apart. Sometimes in a good way, sometimes not.
 Real truths do not ease the burn of existence but bring the pain of clarity.
@@ -39,8 +39,8 @@ Obviously, for human-sized exploits largely taking place on Earth, not much beyo
 for worldly means or ends!  
 ...I hope this helps someone who is as confused as I am, and assists you to deal with the overwhelming absurdity of living in a 3 dimensional 
 world with 3 dimensional people as the illusion that it is, but doesn't have to be. Life is not a diorama, it is dynamic. Do not neglect the fact that our bodies
-inhabit space in at least 6 dimensions, not merely 3, and are prone to distinct damage in each one, so to concern oneself with only one or two
+inhabit space in at least 6 dimensions, not merely 3, and are prone to distinct damage from missteps in each one, so to concern yourself with only one or two
 directions of movement is dangerous to your health and lifespan.
-Times and probabilities are just as much physical locations as left and right, up or down, back and forth - and so should be observed accordingly. Or at the very least, not ignored and denied for what they are by those who can afford that luxury.
+Times and probabilities are just as much physical locations as left and right, up or down, back and forth - and so should be observed accordingly. Or at the very least, not ignored and denied for what they are by those who can afford that luxury while others needlessly suffer.
 
 Changing your mind can make any words true, so mind yourself and the words you use.
