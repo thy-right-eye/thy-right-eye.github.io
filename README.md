@@ -11,26 +11,29 @@ Anxiety being defined as 'attempting to occupy a time/space in the certain/possi
 Depression exactly described as 'attempting to occupy a time/space in the certain/possible **past** relative to when your physical body resides'  
 One must position themselves in the center of their timeline, and *know* what they are leaving behind, where they are headed and where they are now.    
 To gain **wisdom** one must first attain *knowledge* of their domain.
-Most importantly then is to TRAVEL WITH INTENTION.  
+Most importantly then is to TRAVEL WITH INTENTION. 
+This is the only way to effectively navigate your consciousness amidst the different probabilities.
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
 It is no small feat to gather yourselves in your entirety and focus all of your intentions in one direction. Maybe this is what it means to align your will with god's.  
-What this means is that at any given time, you are devoted to what you are doing. You want to be there, and you are being honest about it.  
+What this means is that at any given time, you are intentionally doing what you are doing. Your existence at that point in time and space is a conscious decision made after considering all other possibilities that are truly available and is serving the higher purpose of allowing you to sow chaos/order in the particular fashion one is only capable of.  
 It is in this way that you must complete everything you wish to do.
-Akin to Kundalini awakening, this sort of drive can tear your life asunder. Sometimes in a good way, sometimes not.
+Almost like a real Kundalini awakening, this sort of drive often tears your life apart. Sometimes in a good way, sometimes not.
+Real truths do not ease the burn of existence but bring the pain of clarity.
 Here is a frail representation of the model of our universe AS IT PERTAINS TO HUMAN PERCEPTION.  
 It's base 10, like Super String Theory suggests.  
 Remember - YOU ARE THE CENTER OF YOUR UNIVERSE, and the succession of dimensions is observed from your center on out, beginning here:  
-| # dimension | name | method of perception |  
-1st Dimension - x axis - Existence  
-2nd Dimension - y axis - Awareness  
-3rd Dimension - space - Knowledge  
-4th Dimension - time - Wisdom  
-5th Dimension - probability - Imagination  
-6th Dimension - intention - Will  
-7th Dimension - chaos - Magic  
-8th Dimension - infinity - God  
-9th Dimension - spiral - Oneness  
-0th Dimension - zero - Nothing  
+
+>| # dimension | name | method of perception |  
+>1st Dimension - x axis - Existence  
+>2nd Dimension - y axis - Awareness  
+>3rd Dimension - space - Knowledge  
+>4th Dimension - time - Wisdom  
+>5th Dimension - probability - Imagination  
+>6th Dimension - intention - Will  
+>7th Dimension - chaos - Magic  
+>8th Dimension - infinity - God  
+>9th Dimension - spiral - Oneness  
+>0th Dimension - zero - Nothing  
   
 Obviously, for human-sized exploits largely taking place on Earth, not much beyond the first 6 dimensions is practically necessary or useful  
 for worldly means or ends!  
