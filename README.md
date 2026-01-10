@@ -3,9 +3,9 @@
 I recently made the independent observation that this universe is made up of 10 conceivable dimensions.  
 This includes the first 3, experienced by humans using 5 "separate" senses.  
 Apparently somehow I had limited myself to the observation of only 3 up until now, distracted by the 5 senses and needs of the human host.
-But spatial awareness is more than 3 dimensional.
+But spatial awareness is more than 3 dimensional.  
 Here is a frail representation of the model of our universe AS IT PERTAINS TO HUMAN PERCEPTION.  
-It's base 10, like Super String Theory suggests. 
+It's base 10, like Super String Theory suggests.  
 Remember - YOU ARE LITERALLY THE CENTER OF YOUR UNIVERSE, and the succession of dimensions is observed from your center on out, beginning here:  
 
 >| # dimension | name | method of perception |  
@@ -20,16 +20,18 @@ Remember - YOU ARE LITERALLY THE CENTER OF YOUR UNIVERSE, and the succession of 
 >9th Dimension - spiral - Oneness  
 >0th Dimension - zero - Nothing
 
-I will attempt to explain:
-Time remained an absract concept that is anything but consistent and I believed that I, myself, was my material vessel and experienced life in this way.  
+I will attempt to explain:  
+For most of my life, time remained an absract concept that is anything but consistent and I believed that I, myself, was my material vessel and experienced life in this way.  
+I could not figure out why for some reason no matter what I wanted to do, I would just repeat the same behaviors every day until for some reason the universe would bless me with seemingly random change.  
 The mind and body stagnate in 3D.
 It is my contention that there is no veil but our own perception, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
-This potentially leads to adverse mental conditions:  
+This potentially leads to adverse mental conditions because we are not aware of how our thoughts and emotions influence reality, but this awareness can be restored.
 Anxiety being defined as 'attempting to occupy a time/space in the certain/possible **future** relative to when your physical body resides'  
 Depression described as 'attempting to occupy a time/space in the certain/possible **past** relative to when your physical body resides'  
 All of this may seem obvious until you look at a human's behaviour. One may say they "know" these facts, but when strictly speaking based on observed behavior, the conclusion is that no, they don't know how this works.
 One must look up from their position in the center of their timeline, and possess enough knowledge to be aware of how they got there and where they are headed.    
-To gain this **wisdom** one must first attain *knowledge* of their domain so they can master their surroundings.
+To gain this **wisdom** one must first attain *knowledge* of their domain so they can master their surroundings.  
+Expertly navigating the 3 dimensions of the physical realm is absolutely necessary. But it is far from the end of your journey to mastering yourself.
 Most importantly then is to set your INTENTION. 
 This is the only way to effectively navigate your consciousness amidst the different probabilities.
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
