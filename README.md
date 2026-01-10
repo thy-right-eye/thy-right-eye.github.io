@@ -3,6 +3,7 @@
 I recently made the independent observation that this universe is made up of 10 conceivable dimensions.  
 This includes the first 3, experienced by humans using 5 "separate" senses.  
 Apparently somehow I had limited myself to the observation of only 3 up until now, distracted by the 5 senses and needs of the human host.
+But spatial awareness is more than 3 dimensional.
 Time remained an absract concept that is anything but consistent and I believed that I, myself, was my material vessel and experienced life in this way.  
 The mind and body stagnate in 3D.
 It is my contention that there is no veil but our own perception, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
@@ -14,13 +15,17 @@ To gain **wisdom** one must first attain *knowledge* of their domain so they can
 Most importantly then is to set your INTENTION. 
 This is the only way to effectively navigate your consciousness amidst the different probabilities.
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
-It is no small feat to gather yourselves in your entirety and focus all of your intentions in one direction. Maybe this is what it means to align your will with god's.  
-What it *does* mean is that at any given time, you are intentionally doing what you are doing. Your existence at that point in time and space is a conscious decision made after considering all other possibilities that are truly available and is serving the higher purpose of allowing you to sow chaos/order in the particular fashion one is only capable of themselves. 
+The mastery of the martial arts of the 5 senses is necessary for any successful vehicle of humanity regardless of it's destination.
+We need Knowledge of our surroundings, Wisdom from the past and for the future, Imagination of different possibilities and the Will to follow an intentional eventuality to succeed in fulfilling whatever destiny we desire.
+It is necessary to include these additional senses of direction to the 5 we already use in our perception of the world around us, because  it is no small feat to gather your selves in your entirety and focus all of your intentions in one direction. To have one true intention.  
+Maybe this is what it means to align your will with god's.  
+What it *does* mean is that to be aware is to be intentionally doing what you are doing. Your existence at that point in time and space is a conscious decision made after considering all other possibilities that are truly available and is serving the higher purpose of allowing you to sow chaos/order in the particular fashion one is only capable of themselves. 
+Not a complacent state of least resistance.
 It is in this way that you must complete everything you wish to do.
-Almost like a real Kundalini awakening, this sort of drive often tears your life apart. Sometimes in a good way, sometimes not. Depends on where you are.
+Almost like a real Kundalini awakening, this sort of awareness when truly attained often tears your life apart. Sometimes in a good way, sometimes not. Depends on where you are.
 Real truths do not ease the burning of existence but bring the pain of clarity.
 Here is a frail representation of the model of our universe AS IT PERTAINS TO HUMAN PERCEPTION.  
-It's base 10, like Super String Theory suggests.  
+It's base 10, like Super String Theory suggests. 
 Remember - YOU ARE LITERALLY THE CENTER OF YOUR UNIVERSE, and the succession of dimensions is observed from your center on out, beginning here:  
 
 >| # dimension | name | method of perception |  
