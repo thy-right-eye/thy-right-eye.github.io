@@ -25,18 +25,18 @@ For most of my life, time remained an absract concept that is anything but consi
 I could not figure out why for some reason no matter what I wanted to do, I would just repeat the same behaviors every day until for some reason the universe would bless me with seemingly random change.  
 The mind and body stagnate in 3D.
 It is my contention that there is no veil but our own perception, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
-This potentially leads to adverse mental conditions because we are not aware of how our thoughts and emotions influence reality, but this awareness can be restored.
-Anxiety being defined as 'attempting to occupy a time/space in the certain/possible **future** relative to when your physical body resides'  
-Depression described as 'attempting to occupy a time/space in the certain/possible **past** relative to when your physical body resides'  
-All of this may seem obvious until you look at a human's behaviour. One may say they "know" these facts, but when strictly speaking based on observed behavior, the conclusion is that no, they don't know how this works.
-One must look up from their position in the center of their timeline, and possess enough knowledge to be aware of how they got there and where they are headed.    
-To gain this **wisdom** one must first attain *knowledge* of their domain so they can master their surroundings.  
+Often times this leads to adverse mental health conditions because we are not aware of how our silent thoughts, emotions and the resultantly underlying intentions influence reality.
+Anxiety can be defined as 'attempting to occupy a time/space in the certain/possible **future** relative to when your physical body resides'  
+Depression can be described as 'attempting to occupy a time/space in the certain/possible **past** relative to when your physical body resides'  
+When your heart or mind or soul reside somewhere else besides alongside the others in your body, the flesh lacks the energy in all emotional spectrums it needs to function optimally.
+All of this may seem obvious until you observe a human's behaviour. One may say they "know" these facts, but when strictly speaking based on observed behavior, the conclusion is that no, they don't know how this works.
+One must look up from their position in the  biocenter of their timeline, from which all life pours forth, and possess enough situational knowledge to be aware of how they got there and where they are headed. A short memory will not do.    
+To gain this **wisdom** one must first attain *knowledge* of their domain so they can master their surroundings, wherever you may find yourself in this life.  
 Expertly navigating the 3 dimensions of the physical realm is absolutely necessary. But it is far from the end of your journey to mastering yourself.
-Most importantly then is to set your INTENTION. 
-This is the only way to effectively navigate your consciousness amidst the different probabilities.
+INTENTIONS are how we navigate our consciousness amidst the different probabilities. To master the quantum realm; to freely unsubscribe from realities that no longer suit the current version of yourself.
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
-The mastery of the martial arts of the 5 senses is necessary for any successful vehicle of humanity regardless of it's destination.
-We may perform whatever actions we like, but our intentions always show in the end.
+The mastery of the martial arts of the 5 senses is necessary for any autonomous human vehicle regardless of it's destination.
+We may perform whatever actions we like, but our intentions are always apparent because that is what drives our direction.
 We need Knowledge of our surroundings, Wisdom from the past and for the future, Imagination of different possibilities and the Will to follow an intentional eventuality to succeed in fulfilling whatever destiny we desire.
 It is necessary to include these additional senses of direction to the 5 we already use in our perception of the world around us, because  it is no small feat to gather your selves in your entirety and focus all of your intentions in one direction. To have one true intention.  
 Maybe this is what it means to align your will with god's.  
