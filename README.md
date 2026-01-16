@@ -25,7 +25,7 @@ For most of my life, time remained an absract concept that is anything but consi
 I could not figure out why for some reason no matter what I wanted to do, I would just repeat the same behaviors every day until for some reason the universe would bless me with seemingly random change.  
 The mind and body stagnate in 3D.
 It is my contention that there is no veil but our own perception, and we are therefore incorrectly viewing our immediate surroundings as strictly 3 dimensional.  
-Often times this leads to adverse mental health conditions because we are not aware of how our silent thoughts, emotions and the resultantly underlying intentions influence reality.
+Often times this leads to adverse mental health conditions because we are not aware of how our silent thoughts, emotions and the resultantly underlying intentions influence reality.  
 Anxiety can be defined as 'attempting to occupy a time/space in the certain/possible **future** relative to when your physical body resides'  
 Depression can be described as 'attempting to occupy a time/space in the certain/possible **past** relative to when your physical body resides'  
 When your heart or mind or soul reside somewhere else besides alongside the others in your body, the flesh lacks the energy in all emotional spectrums it needs to function optimally.
