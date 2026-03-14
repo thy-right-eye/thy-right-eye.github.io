@@ -32,18 +32,19 @@ When your heart or mind or soul reside somewhere else besides alongside the othe
 All of this may seem obvious until you observe a human's behaviour. One may say they "know" these facts, but when strictly speaking based on observed behavior, the conclusion is that no, they don't know how this works.
 One must look up from their position in the  biocenter of their timeline, from which all life pours forth, and possess enough situational knowledge to be aware of how they got there and where they are headed. A short memory will not do.    
 To gain this **wisdom** one must first attain *knowledge* of their domain so they can master their surroundings, wherever you may find yourself in this life.  
-Expertly navigating the 3 dimensions of the physical realm is absolutely necessary. But it is far from the end of your journey to mastering yourself.
+Expertly navigating the 3 dimensions of the physical realm is absolutely necessary. But it is far from the end of your journey to mastering yourself.  
+(Disclaimer: I only claim how NOT to acccomplish this, in  no way do I have any idea how to 'master oneself'... that implies enslavement so maybe is not a good goal at all.)  
 INTENTIONS are how we navigate our consciousness amidst the different probabilities. To master the quantum realm; to freely unsubscribe from realities that no longer suit the current version of yourself.
 We are complex beings created out of contradiction, ironically driven to attain some form of stasis by instinct.  
 The mastery of the martial arts of the 5 senses is necessary for any autonomous human vehicle regardless of it's destination.
 We may perform whatever actions we like, but our intentions are always apparent because that is what drives our direction.
 We need Knowledge of our surroundings, Wisdom from the past and for the future, Imagination of different possibilities and the Will to follow an intentional eventuality to succeed in fulfilling whatever destiny we desire.
 It is necessary to include these additional senses of direction to the 5 we already use in our perception of the world around us, because  it is no small feat to gather your selves in your entirety and focus all of your intentions in one direction. To have one true intention.  
-Maybe this is what it means to align your will with god's.  
-What it *does* mean is that to be aware is to be intentionally doing what you are doing. Your existence at that point in time and space is a conscious decision made after considering all other possibilities that are truly available and is serving the higher purpose of allowing you to sow chaos/order in the particular fashion one is only capable of themselves. 
-Not a complacent state of least resistance.
+Maybe this is what it means to align your will with a god's.  
+What it *does* mean is that to be aware is to be intentionally doing what you are doing. Your existence at that point in time and space is a conscious decision made after considering all other possibilities that are truly available and is serving the higher purpose of allowing you to sow chaos/order in the particular fashion one is only capable of themselves as the center of their given universe. 
+Not a complacent state of least resistance guised as stoicism.
 It is in this way that you must complete everything you wish to do.
-Almost like a real Kundalini awakening, this sort of awareness when truly attained often tears your life apart. Sometimes in a good way, sometimes not. Depends on where you are.
+This level of awareness can tear your life apart (or if ignored, your body). Sometimes in a good way, sometimes not. Depends on who and where you are.
 Real truths do not ease the burning of existence but bring the pain of clarity.
   
 Obviously, for human-sized exploits largely taking place on Earth, not much beyond the first 6 dimensions is practically necessary or useful  
@@ -52,6 +53,6 @@ for worldly means or ends!
 world with 3 dimensional people as the illusion that it is, but doesn't have to be. Life is not a diorama, it is dynamic. Do not neglect the fact that our bodies
 inhabit space in at least 6 dimensions, not merely 3, and are prone to distinct damage from missteps in each one, so to concern yourself with only one or two
 directions of movement is dangerous to your health and lifespan.
-Times and probabilities are just as much physical locations as left and right, up or down, back and forth - and so should be observed accordingly. Or at the very least, not ignored and denied for what they are by those who can afford that luxury while others needlessly suffer.
+Times and probabilities are just as much physical locations as left and right, up or down, back and forth - and so should be observed accordingly. Or at the very least, not ignored and denied for what they are by those who can afford that luxury while others needlessly suffer. Is it not remarkably more simple to travel down than it is to go up? 
 
 Changing your mind can make any words true, so mind yourself and the words you use.
